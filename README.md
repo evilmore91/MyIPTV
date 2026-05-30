@@ -32,3 +32,4 @@ For any inquiries or support, feel free to reach out through any of the above ch
 **MYPREMIUMIPTV** – Redefining the way you experience entertainment.
 <img width="752" height="555" alt="image" src="https://github.com/user-attachments/assets/3491cf63-497e-4aae-8a72-da63b69b480d" />
  
+ 
